@@ -1,5 +1,5 @@
 # 💫 About Me:
-Currently cooking enterprise applications<br>always learning everything there is to be learnt
+Currently cooking enterprise applications<br>always learning everything there is to be learned
 
 
 ## 🌐 Socials:
