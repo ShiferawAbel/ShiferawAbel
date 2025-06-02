@@ -1,5 +1,9 @@
 # 💫 About Me:
-Currently cooking enterprise applications<br>always learning everything there is to be learned
+All Green Is The Goal!
+.
+.
+.
+Ofcoarse while cooking interesting stuff.
 
 
 ## 🌐 Socials:
